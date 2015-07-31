@@ -1,1 +1,1 @@
-View online at http://juampy72.github.io/jenkins-drupal
+View online at http://juampy72.github.io/women-drupalcamp-2015
